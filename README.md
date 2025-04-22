@@ -1,0 +1,1 @@
+This website is for my business "NOT gum". I recently fell in love with mastic gum and all of its health benefits and want to spread the news with the internet! There already are websites who sell this mastic gum but I want to stand out and do it my way! 
